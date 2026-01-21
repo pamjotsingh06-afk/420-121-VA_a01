@@ -1,3 +1,3 @@
 # 420-121-VA_a01
 K.M.S
-(kill my self)
+(kill my shelf)
